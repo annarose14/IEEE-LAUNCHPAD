@@ -1,8 +1,8 @@
-# Full Name 
+Anna Rose Bijoy
 
 ### About Me
 
-> write about your self .................. (minimum 200 Characters)
+>Hey there! I am Anna
 
 
 ## Portfolio Highlights
